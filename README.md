@@ -1,2 +1,1 @@
-# vanessapaschoa.github.io
-Página pessoal de Vanessa Paschoa
+# Página pessoal de Vanessa Paschoa
