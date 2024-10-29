@@ -1,7 +1,7 @@
 # Página pessoal de Vanessa Paschoa
 
-🗃️ Arquivo  
-📒 Cursos / Disciplinas  
+🗃️ [Arquivo](https://sites.google.com/view/vanessagpf/arquivo)  
+📒 [Cursos / Disciplinas](https://sites.google.com/view/vanessagpf/cursos)  
 📑 Pesquisa e publicações  
 👉🏼 Sugestões  
 📡 Eventos   
